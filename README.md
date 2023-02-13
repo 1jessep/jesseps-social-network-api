@@ -1,3 +1,11 @@
+VIDEO WALKTHROUGH:
+https://drive.google.com/file/d/1qDJIwROn52U_i3EGKsUAJrlwqqgmcEji/view
+
+
+SCREENSHOT:
+![Screenshot_20230213_015322](https://user-images.githubusercontent.com/110129027/218561013-237f612d-85f9-4620-b60c-57cf7b7eeeca.png)
+
+
 
   # JESSEP'S SOCIAL NETWORK
 
